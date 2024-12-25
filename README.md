@@ -16,6 +16,6 @@
 
 9th-/ CSS-master
 
-10ht-/ game-gardiun
+10th-/ game-gardiun
 
 Congratulations too all the players of Top 10. 
